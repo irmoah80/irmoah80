@@ -1,4 +1,4 @@
-hey! Hm frim iran , so , i wrote it in Farsi!
+hey! Hm from iran , so , i wrote it in Farsi!
 خوب اینکه...
 طراح رابط کاربریم ، تجربه دارم پس طراح رابط کاربری تجربی هم هستم :)
 داشنجوی مهندسی کامپیوتر هستم! و خدارو شکر علاقه هم دارم
